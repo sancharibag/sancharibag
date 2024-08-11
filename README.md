@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on coding projects. 
 - 📫 How to reach me instagram- sanchari_06_
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I don't like butterfly 
+- ⚡ Fun fact: I don't like butterflies.  
 
 <!---
 sancharibag/sancharibag is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
