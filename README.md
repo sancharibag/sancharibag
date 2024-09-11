@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer and Mathematics 
 - 🌱 I’m currently learning information technology 
 - 💞️ I’m looking to collaborate on coding projects. 
-- 📫 How to reach me instagram- sanchari_06_
+- 📫 How to reach me instagram- sanchari06_ email- sancharibag0615@gmail.com 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I don't like butterflies.  
 
